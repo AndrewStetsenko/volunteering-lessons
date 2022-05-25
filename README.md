@@ -1,3 +1,7 @@
+Hey 👋
+
+My name is Andrew Stetsenko and I live in Ukraine. Before February 24th, I used to invest my time and effort into growing [Relocate.me](https://relocate.me), a niche job board for techies looking to relocate. Now, I’m busy helping my fellow citizens affected by Russia’s invasion.
+
 # 10 Lessons I’ve Learned after Three Months of Volunteering:
 
 1. To be an effective volunteer, understand what your ‘superpowers’ are and maximize them.
