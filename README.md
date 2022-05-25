@@ -4,13 +4,17 @@
 
 2. It’s better to have an area of specialization. It may be helping children flee Russian invaders, evacuating residents, supplying the resistance, assisting animal shelters, or … 
 
+<br>![alt tag](https://d2g8igdw686xgo.cloudfront.net/64974119_165117772687750_r.)<br>
+
 3. Sometimes you have to say ‘no’ or ‘a bit later’, as your resources are limited and you cannot help everyone. 
 
 4. Keep track of your own energy level while helping others, otherwise you will burn out very quickly. (It’s basically like running a startup 24/7.)
 
 5. You will be pleasantly surprised by some people you never expected anything from, and you will be disappointed by folks with perfect reputations and glowing social media profiles. 
 
-6. There are no clear KPI’s to measure your performance as a volunteer. You’re the only one who decides when you’ve done enough. 
+6. There are no clear KPI’s to measure your performance as a volunteer. You’re the only one who decides when you’ve done enough.
+
+<br>![alt tag](https://d2g8igdw686xgo.cloudfront.net/64974119_1651177773938246_r.)<br>
 
 7. Volunteering broadens your world; you will meet many interesting people.
 
