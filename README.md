@@ -22,10 +22,10 @@
 
 9. Choose some personal reward to celebrate small victories. For instance, every time I send out a large number of humanitarian aid boxes, I order a cup of coffee and spend a while savoring the moment.
 
-11. Money raised through donations soon runs out. Each month, it will become harder and harder to collect money for your foundation. You must be creative in fundraising and transparent on how you spend the money collected. It’s also important to foster a community around your initiative/foundation.  
+11. Money raised through donations soon runs out. Each month, it will become harder and harder to collect money for your foundation. You must be creative in fundraising and transparent on how you spend the money collected. It’s also important to foster a community around your initiative/foundation.
 
 Volunteering is rarely easy, especially over the long term. There is no ‘golden medal’ as a reward for your efforts. You have to believe that you’re doing the right thing and find satisfaction in what you’re doing.  I found my own ‘why’ volunteering in the early days of the Russian invasion of Ukraine, and it motivates me to keep doing what I’m doing.  
 
 I stand with Ukraine! 
 
-#StandWithUkraine
+*PS: If you want to make a donation to support the people in Ukraine, follow [this link](https://www.gofundme.com/f/medical-and-other-humanitarian-aid-for-ukrainians).*
